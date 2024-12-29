@@ -9,6 +9,7 @@ Connect with me:
 
 https://www.linkedin.com/in/shahejafar-shaikh-807020203/
 
+![Uploading linked-in-alt.svg…]()
 
 
 
